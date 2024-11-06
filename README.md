@@ -1,4 +1,4 @@
-<h1>Aviator <a href="https://1win1.mxt/">1win </a>: Estrategias, Ventajas y Guía Completa para Jugar</h1>
+<h1>Aviator <a href="https://1win1.mx/">1win </a>: Estrategias, Ventajas y Guía Completa para Jugar</h1>
     <p>El día de hoy vamos a hablar de uno de los juegos que más llama la atención en la casa de apuestas 1win, y que ha crecido entre el público mexicano. Nos referimos a 1win Aviator, un juego de apuestas que hizo su aparición en el 2018, y desde entonces se ha vuelto sumamente popular por su facilidad al jugar.</p>
     <p>El día de hoy te cuento todo lo que debes saber sobre Aviator 1win, incluida su interfaz, modalidad de juego y algunos tips para que tengas las mejores ganancias y aproveches sus funcionalidades especiales.</p>
     <h2>Aviator 1Win: Guía Completa, Estrategias y Consejos para Ganar</h2>
